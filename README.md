@@ -15,7 +15,7 @@ Company : Diamondz Developers.
 
 write down your query to - official.arhamsiddiqui@gmail.com
 
-or follow the link to contact Diamondz Developers -> wa.me/917983877402.
+or follow the link to contact Diamondz Developers -> https://wa.me/917983877402.
 
 
 
